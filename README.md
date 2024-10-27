@@ -1,0 +1,1 @@
+# Szmigielski_2F_2_z1_6_do_27_10_g20.
